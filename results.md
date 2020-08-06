@@ -6,3 +6,7 @@
 1991 Frech Open - Monica Seles
 1991 Wimbledon - Steffi Graf
 1991 US Open - Monica Seles
+1992 Australian open - Monica seles
+1992 French Open - Monica Seles
+1992 Wimbledon - Steffi Graf
+1992 US Open - Monica Seles
