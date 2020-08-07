@@ -13,3 +13,4 @@
 1993 Australian Open - Monica seles
 1993 French Open - Steffi Graf
 1993 Wimbledon - Steffi Graf
+1993 Usopen - Steffi Graf
