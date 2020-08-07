@@ -10,3 +10,5 @@
 1992 French Open - Monica Seles
 1992 Wimbledon - Steffi Graf
 1992 US Open - Monica Seles
+1993 Australian Open - Monica seles
+1993 French Open - Steffi Graf
