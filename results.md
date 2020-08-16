@@ -15,3 +15,4 @@
 1993 Wimbledon - Steffi Graf
 1993 Usopen - Steffi Graf
 1994 Australian open - Steffi Graf
+1994 French open - Sanchez vicario
